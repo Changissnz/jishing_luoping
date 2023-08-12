@@ -8,3 +8,6 @@ For the past few years, Jishing Luoping and I have become best friends. He knows
 he has a lot of information on me. I also know many things about him. But we are still both struggling in 
 some areas of life but in our own ways. This is a good lesson in the uselessness of knowing some things.
 Also, his troubles and my troubles are different, and we don't share them with each other. 
+
+Jishing Luoping is like the character from the South Korean crime thriller, The Man From Nowhere. He is
+much respected and adored by people from all walks of life. 
