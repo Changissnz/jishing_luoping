@@ -13,5 +13,5 @@ Jishing Luoping is like the character from the South Korean crime thriller, The 
 much respected and adored by people from all walks of life. 
 
 ---------------------------------------------------------------------------------------------------------
-Copyright 2023 Richard Pham
+Copyright 2023 Richard Pham  
 Auf Phantasmos Diarriccimo
