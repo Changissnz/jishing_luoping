@@ -11,3 +11,7 @@ Also, his troubles and my troubles are different, and we don't share them with e
 
 Jishing Luoping is like the character from the South Korean crime thriller, The Man From Nowhere. He is
 much respected and adored by people from all walks of life. 
+
+---------------------------------------------------------------------------------------------------------
+Copyright 2023 Richard Pham
+Auf Phantasmos Diarriccimo
